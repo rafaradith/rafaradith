@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rafaradith
+- 👀 I’m interested in playing Minecraft
+- 🌱 I’m currently learning regular school subjects
+- 💞️ I’m not looking to collaborate with anyone
+- 📫 You can't reach me
